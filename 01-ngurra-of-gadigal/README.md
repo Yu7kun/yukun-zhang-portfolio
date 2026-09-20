@@ -14,6 +14,8 @@
 **我的角色：** Team Lead · Project Coordination · User Research · Concept Development · Experience Design  
 **关键词：** `Cross-cultural Research` `User Research` `Gamification` `Place-based Learning`
 
+**网站链接：** https://sharingcountry.vercel.app/
+
 ---
 
 ## 01｜Overview
