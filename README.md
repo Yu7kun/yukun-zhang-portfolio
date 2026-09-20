@@ -115,8 +115,9 @@ Research → Insight → Strategy → Solution → Test → Iteration
 ---
 
 ## Contact｜联系方式
+邮箱：yukun_zhang_kwen@163.com
+手机号码：13535456343
 
-> 发布前请在这里补充你希望公开的求职邮箱 / LinkedIn。
 
 ---
 
