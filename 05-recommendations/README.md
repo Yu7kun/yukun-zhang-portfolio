@@ -24,22 +24,5 @@
 - 营销项目执行
 - 面对挑战时的主动性与责任感
 
-完整推荐信可在正式面试或背景核验阶段按需提供。
 
----
 
-## Academic Referees
-
-**Academic references available upon request.**
-
-为保护推荐人的隐私，公开 Portfolio 不列出私人联系方式或完整推荐信扫描件。
-
----
-
-## Why I Keep Letters Private
-
-公开作品集应证明：
-
-> **我做过什么、怎么研究、如何形成判断。**
-
-推荐信则属于第三方评价材料，更适合在招聘方明确需要时单独提供，而不是永久公开。
